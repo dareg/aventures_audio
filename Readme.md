@@ -10,6 +10,8 @@ Créations originales:
 
 - L’incroyable expédition de Corentin Tréguier au Congo: https://www.franceculture.fr/emissions/lincroyable-expedition-de-corentin-treguier-au-congo
 
+- La Légende de Xantah: https://www.capitainegloomy.com/episodes/
+
 - Reflets d'acide: https://www.refletsdacide.com/
 
 D'après un livre:
