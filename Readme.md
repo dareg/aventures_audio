@@ -2,6 +2,8 @@ Créations originales:
 
 - Le cacao qui tue: http://www.lecacaoquitue.fr
 
+- Les contes de Fitzgerald: http://fitzgerald.studiosfal.com/
+
 - Le donjon de Naheulbeuk: http://www.penofchaos.com/warham/donjon.htm
 
 - Un été en Antarctique: https://www.franceculture.fr/emissions/un-ete-en-antarctique 
